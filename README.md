@@ -1,9 +1,9 @@
-# <p align="center"> ${{\color{#AA0000}\Huge{\texttt{"YOU'RE MINE!"}}}}$ </p>
+# <p align="center"> ${{\color{#2E5984}\Huge{\texttt{"I knew it all along..."}}}}$ </p>
 
 <div align="center">
-  <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="1000" src="https://files.catbox.moe/xsh260.gif" alt=""></a>
+  <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="1000" src="https://files.catbox.moe/hmmfio.gif" alt=""></a>
 
-# ![Typing SVG](https://readme-typing-svg.demolab.com?font=Market+10&pause=1000&color=7e7e7e&width=435&lines="I+feel+no+pain,can+you+say+the+same?";"I+love+knocking+out+teeth!";"You+won't+live+to+see+the+next+day.")
+# ![Typing SVG](https://readme-typing-svg.demolab.com?font=Market+10&pause=1000&color=2E5984&width=435&lines="Not+every+Cookie+can+be+happy.";"Truth+and+Deceit...+They+were+one";"I+only+wanted+to+help+you...")
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
