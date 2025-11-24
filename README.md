@@ -1,9 +1,11 @@
-# <p align="center"> ${{\color{#2E5984}\Huge{\texttt{"I knew it all along..."}}}}$ </p>
+<p align="center"> <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/3ytq9g.webp" alt=""></a>
+
+  # <p align="center"> ${{\color{#2E5984}\Huge{\texttt{"This can't be... real..."}}}}$ </p>
 
 <div align="center">
-  <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="1000" src="https://files.catbox.moe/hmmfio.gif" alt=""></a>
 
-# ![Typing SVG](https://readme-typing-svg.demolab.com?font=Market+10&pause=1000&color=2E5984&width=435&lines="Not+every+Cookie+can+be+happy.";"Truth+and+Deceit...+They+were+one";"I+only+wanted+to+help+you...")
+
+# ![Typing SVG](https://readme-typing-svg.demolab.com?font=Market+10&pause=1000&color=2E5984&width=435&lines="Oh,+it's+gonna+be+fun!";"Watch+the+illusion+crumble+around+you!";"Everyone+lies.")
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
@@ -18,3 +20,6 @@
 ᯓ★ Be my friend! I don't bite, unless.. nah i dont but im chill!
 
 ᯓ★ Adhd & autism + anxiety!!!
+ <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="800" src="https://files.catbox.moe/438plj.gif" alt=""></a>
+
+ᯓ★ Enzo outta here <3 <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="100" src="https://files.catbox.moe/5gpi2g.gif" alt=""></a>
