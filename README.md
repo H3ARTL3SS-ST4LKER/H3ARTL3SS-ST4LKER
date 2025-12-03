@@ -23,4 +23,4 @@
 ᯓ★ Adhd & autism + anxiety!!!
  <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="800" src="https://files.catbox.moe/438plj.gif" alt=""></a>
 
-ᯓ★ Enzo outta here <3 <a href="https://files.catbox.moe/3mqecu.jpg" target="_blank"><img width="100" src="https://files.catbox.moe/5gpi2g.gif" alt=""></a>
+ᯓ★ Enzo outta here <3 
