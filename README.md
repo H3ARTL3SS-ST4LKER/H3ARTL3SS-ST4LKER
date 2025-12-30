@@ -1,14 +1,14 @@
-<p align="center"> <a href="https://files.catbox.moe/jfc6ew.jpg" target="_blank"><img width="300" src="https://files.catbox.moe/76a1e3.webp" alt=""></a>
+<p align="center"> <a href="https://files.catbox.moe/nybqre.jpg" target="_blank"><img width="300" src="https://files.catbox.moe/76a1e3.webp" alt=""></a>
 
   ## <p align="center"> FREAK ALERT!!!
 
-   <p align="center"> ${{\color{#650a01}\Huge{\texttt{"No one tells me what to do"}}}}$ </p>
+   <p align="center"> ${{\color{#650a01}\Huge{\texttt{No one tells me what to do.}}}}$ </p>
 
 <div align="center">
 
-  <a href="https://files.catbox.moe/8339jm.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/l9lkip.png" alt=""></a>
+  <a href="https://files.catbox.moe/2gj029.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/kuls4r.jpg" alt=""></a>
 
-# ![Typing SVG](https://readme-typing-svg.demolab.com?font=Market+10&pause=1000&color=650a01&width=435&lines="Is+that+you+harrington?";"Yeah+its+me+dont+cream+your+pants";Harringrove+supremacy)
+# ![Typing SVG](https://readme-typing-svg.demolab.com?font=Market+10&pause=1000&color=650a01&width=435&lines=Do+not+fear+the+telamon.;No..+It+should+go+my+way.;I+don't+see+the+cause+of+such+behavior.)
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
@@ -24,6 +24,6 @@
 
 ᯓ★ Adhd & autism + anxiety!!!
  
- <a href="https://files.catbox.moe/rwv322.jpg" target="_blank"><img width="600" src="https://files.catbox.moe/4hn3pl.jpg" alt=""></a>
+ <a href="https://files.catbox.moe/qn38xu.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/gunbpu.jpg" alt=""></a>
 
 ᯓ★ Enzo outta here <3 
