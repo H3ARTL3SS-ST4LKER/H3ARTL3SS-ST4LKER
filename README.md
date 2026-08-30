@@ -1,20 +1,22 @@
 <p align="center"> <a href="https://files.catbox.moe/nybqre.jpg" target="_blank"><img width="300" src="https://files.catbox.moe/76a1e3.webp" alt=""></a>
 
-  ## <p align="center"> FREAK ALERT!!!
+  ### <p align="center"> I'm a yumeshipper!! If you don't like it! block me
 
-   <p align="center"> ${{\color{#FFBF00}\Huge{\texttt{sanji is so me}}}}$ </p>
+<p align="center"> « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
+
+   <p align="center"> ${{\color{#2e617d}\Huge{\texttt{My husband right here ↓}}}}$ </p>
 
 <div align="center">
 
-  <a href="https://files.catbox.moe/lqdefa.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/yz1az4.jpg" alt=""></a>
+  <a href="https://files.catbox.moe/reb5w6.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/yeewr9.jpg" alt=""></a>
 
-<p align="center"> ${{\color{#FFBF00}\Huge{\texttt{ILY SAMMIE, MY ZORO}}}}$ </p>
+<p align="center"> ${{\color{#2e617d}\Huge{\texttt{Hypersharing(if you're non-sharing feel free to block me!)}}}}$ </p>
 
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
-ᯓ★ Happy valentines, ml sammie
+ᯓ★ Don't be scared to talk to me.!!
 
- <a href="https://files.catbox.moe/53qdxa.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/49fksa.png" alt=""></a>
+ <a href="https://files.catbox.moe/gmq99c.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/gmq99c.jpg" alt=""></a>
 
 ᯓ★ Enzo outta here <3 
