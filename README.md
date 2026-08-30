@@ -1,16 +1,18 @@
 <p align="center"> <a href="https://files.catbox.moe/nybqre.jpg" target="_blank"><img width="300" src="https://files.catbox.moe/76a1e3.webp" alt=""></a>
 
-  ### <p align="center"> I'm a yumeshipper!! If you don't like it! block me
+<p align="center"> <a href="https://files.catbox.moe/7lgsjc.png" target="_blank"><img width="1000" src="https://files.catbox.moe/7lgsjc.png" alt=""></a>
+
+  ### <p align="center"> Please reveiw full github!
 
 <p align="center"> « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
-   <p align="center"> ${{\color{#2e617d}\Huge{\texttt{My husband right here ↓}}}}$ </p>
+   <p align="center"> ${{\color{#2e617d}\Huge{\texttt{Law my F/o <33}}}}$ </p>
 
 <div align="center">
 
-  <a href="https://files.catbox.moe/reb5w6.jpg" target="_blank"><img width="500" src="https://files.catbox.moe/yeewr9.jpg" alt=""></a>
+  <a href="https://files.catbox.moe/reb5w6.jpg" target="_blank"><img width="2000" src="https://files.catbox.moe/y4jfs3.png" alt=""></a>
 
-<p align="center"> ${{\color{#2e617d}\Huge{\texttt{Hypersharing(if you're non-sharing feel free to block me!)}}}}$ </p>
+<p align="center"> ${{\color{#2e617d}\Huge{\texttt{Hypersharing(Reminder, if you dislike me for this, block me)}}}}$ </p>
 
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
