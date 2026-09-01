@@ -12,7 +12,7 @@
 
   <a href="https://files.catbox.moe/reb5w6.jpg" target="_blank"><img width="2000" src="https://files.catbox.moe/y4jfs3.png" alt=""></a>
 
-<p align="center"> ${{\color{#2e617d}\Huge{\texttt{Hypersharing(Reminder, if you dislike me for this, block me)}}}}$ </p>
+<p align="center"> ${{\color{#2e617d}\Huge{\texttt{Sharing my husband like a Joint💔}}}}$ </p>
 
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
